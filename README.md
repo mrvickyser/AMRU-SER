@@ -1,6 +1,6 @@
 <div align="center">
   <p align="center">
-<img src=https://i.imgur.com/Q8UeA57.png>
+<img src=https://i.imgur.com/W6DJGyK.jpeg>
 </p>
 
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=WELCOME+TO+AMRUSIR+WA+BOT+REPO;CREATED+BY+AMRU+SIR;THIS+IS+A+USERBOT+PRIVATE+AND+PUBLIC+BOT;WITH+MORE+FEATHERS)](https://git.io/typing-svg)
@@ -10,10 +10,10 @@
 
 <div align="center">
   <p align="center">
-<img src=https://i.imgur.com/gJbPS5x.jpeg>
+<img src=https://i.imgur.com/W6DJGyK.jpeg>
 </p>
 
-<img src=https://i.ibb.co/s1CSFK7/ae6572d653ee04f78fc986bddd89d5b3.png>
+<img src=https://i.imgur.com/W6DJGyK.jpeg>
 </p>
 
 
@@ -35,7 +35,7 @@ Project created by <a href="https://github.com/AMRUSIR-AMRUSER">AMRU-SER</a> to 
 
 ## Click Instagram logo to follow this page👇
 
- [![ANY DOUBT REFER IT](https://i.imgur.com/nVSXUMw.jpeg)](https://instagram.com/its_me_dron)
+ [![ANY DOUBT REFER IT](https://i.imgur.com/W6DJGyK.jpeg)](https://instagram.com/its_me_dron)
 
   ### Simple Method
   
